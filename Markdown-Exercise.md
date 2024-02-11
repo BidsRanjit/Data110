@@ -26,5 +26,9 @@ I love music so here is a link to one my favorite music videos
 [1]: 
 
 
+> This is Polar. One of my main goals in life is to make this husky as happy as she can be. She is one of the few beings in my life who genuinely makes me happy and I will do everything in my power to give her the best life she deserves
+
+
+
 
 
